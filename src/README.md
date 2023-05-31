@@ -10,4 +10,4 @@ Each chapter provides actionable strategies for enhancing your creativity and in
 
 Whether you're an entrepreneur, artist, writer, or simply looking to enhance your problem-solving and creative thinking skills, "How to Boost Your Creativity and Innovation" is a must-read that will help you unlock your full potential and achieve greater success.
 
-MingHai Zheng is a writer based in Wuhan, China, who focuses on writing articles about workplace and management topics. He has written hundreds of articles on these topics and is dedicated to sharing his insights and experiences with others who are interested in improving their careers and their businesses.
+MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
