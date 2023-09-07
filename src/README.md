@@ -1,4 +1,4 @@
-# Introduction
+
 
 Creativity and innovation are essential skills in today's fast-paced and constantly evolving world. From entrepreneurs and business leaders to artists and writers, everyone can benefit from learning how to boost their creativity and generate innovative ideas and solutions.
 
@@ -11,3 +11,7 @@ Each chapter provides actionable strategies for enhancing your creativity and in
 Whether you're an entrepreneur, artist, writer, or simply looking to enhance your problem-solving and creative thinking skills, "How to Boost Your Creativity and Innovation" is a must-read that will help you unlock your full potential and achieve greater success.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng

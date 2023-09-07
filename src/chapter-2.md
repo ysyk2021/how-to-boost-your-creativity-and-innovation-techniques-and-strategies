@@ -1,5 +1,3 @@
-Chapter 2: Cultivating a Creative Mindset
-=========================================
 
 Creativity is an important skill for success in many areas of life, including business, the arts, and personal growth. However, cultivating a creative mindset can be challenging, especially when facing creative blocks or self-doubt. In this chapter, we will explore techniques and strategies for cultivating a creative mindset and overcoming creative blocks.
 

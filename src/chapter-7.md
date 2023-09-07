@@ -1,5 +1,3 @@
-Chapter 7: Implementing Ideas for Impact
-========================================
 
 Implementing ideas for impact is essential for innovation. However, implementing innovative solutions can be challenging, particularly when it comes to encouraging adoption and acceptance from stakeholders. In this chapter, we will explore techniques and strategies for implementing ideas for impact.
 

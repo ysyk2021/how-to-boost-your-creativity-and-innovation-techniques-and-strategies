@@ -1,5 +1,3 @@
-Defining Creativity and Innovation and Their Importance in Personal and Professional Development
-=========================================================================================================================
 
 Creativity and innovation are essential skills in personal and professional development. They involve generating new and novel ideas, concepts, and solutions to problems. In this chapter, we will define creativity and innovation and explore their importance in personal and professional development.
 

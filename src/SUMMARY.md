@@ -37,3 +37,4 @@
   - [The Benefits of Balancing Creativity and Practicality in Encouraging Successful Implementation](chapter-9-3.md)
 - [Conclusion](conclusion.md)
 - [Contacts](contacts.md)
+- [Our Other Books](other-books.md)

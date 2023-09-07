@@ -1,5 +1,3 @@
-Chapter 6: Collaborating for Innovation
-=======================================
 
 Collaboration is an essential component of innovation. By working together, individuals with different backgrounds and expertise can generate new and novel ideas that may not have been possible otherwise. In this chapter, we will explore techniques for collaborating across disciplines and encouraging collective idea generation, strategies for building effective teams and encouraging open communication, and the benefits of collaborating for innovation in encouraging successful implementation.
 

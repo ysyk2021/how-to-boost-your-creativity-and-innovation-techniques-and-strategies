@@ -1,5 +1,3 @@
-Understanding the Connection between Idea Generation and Encouraging Creative and Innovative Thinking
-==============================================================================================================================
 
 Idea generation is a crucial part of creativity and innovation. It involves generating new and novel ideas, concepts, and solutions to problems. However, idea generation can be challenging, especially when facing creative blocks or self-doubt. In this chapter, we will explore the connection between idea generation and encouraging creative and innovative thinking.
 

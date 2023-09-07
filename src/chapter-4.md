@@ -1,5 +1,3 @@
-Chapter 4: Generating Ideas through Inspiration
-===============================================
 
 Generating ideas through inspiration is an important part of the creative process. It involves finding inspiration from a variety of sources and using that inspiration to generate new and novel ideas. In this chapter, we will explore techniques for finding inspiration and encouraging novel idea generation.
 

@@ -1,5 +1,3 @@
-Chapter 8: Overcoming Obstacles
-===============================
 
 Innovation and creativity are important in any industry, but they can be hindered by obstacles and challenges that arise during the ideation process. This chapter will explore techniques and strategies for overcoming these obstacles and building resilience and persistence in order to encourage continued creative and innovative thinking.
 

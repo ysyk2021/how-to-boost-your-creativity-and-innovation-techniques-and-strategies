@@ -1,5 +1,3 @@
-Chapter 3: Brainstorming Techniques
-===================================
 
 Brainstorming is a powerful technique for generating new ideas and encouraging creativity and innovation. It involves setting aside judgement and encouraging the generation of a large number of ideas. In this chapter, we will explore techniques and strategies for brainstorming and generating ideas both individually and in groups.
 
