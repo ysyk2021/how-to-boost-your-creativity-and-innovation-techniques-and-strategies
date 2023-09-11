@@ -1,5 +1,4 @@
-Chapter: Strategies for Developing Divergent Thinking and Evaluating Ideas
-==========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Divergent thinking is a crucial skill in enhancing creativity and generating innovative ideas. This chapter explores effective strategies for developing divergent thinking and evaluating ideas to drive the process of enhanced idea generation.
 

@@ -1,5 +1,4 @@
-Chapter: Techniques for Overcoming Obstacles and Challenges in Encouraging Idea Generation and Innovation
-=========================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the creative and innovative process, obstacles and challenges are inevitable. This chapter explores effective techniques for overcoming these obstacles and challenges to encourage idea generation and foster innovation.
 

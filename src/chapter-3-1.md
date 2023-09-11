@@ -1,5 +1,4 @@
-Chapter: Techniques for Brainstorming and Generating Ideas Individually and in Groups
-=====================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Brainstorming and idea generation are essential components of enhancing creativity and driving innovation. This chapter explores effective techniques for brainstorming and generating ideas, both individually and in group settings, to foster enhanced idea generation.
 

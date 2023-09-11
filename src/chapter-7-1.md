@@ -1,5 +1,4 @@
-Chapter: Techniques for Implementing Ideas and Encouraging Innovation Adoption
-==============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Implementing ideas and encouraging innovation adoption are crucial steps in the creative process. In this chapter, we will explore various techniques that can help individuals and organizations effectively implement their ideas and foster a culture of innovation.
 

@@ -1,5 +1,4 @@
-Chapter: Strategies for Challenging Assumptions and Pushing Boundaries
-======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Innovation requires pushing boundaries and challenging assumptions that limit creative thinking. This chapter explores strategies and techniques to encourage individuals and organizations to challenge conventional wisdom and explore new possibilities for enhanced idea generation.
 

@@ -1,5 +1,4 @@
-Chapter: Techniques for Cultivating a Creative Mindset and Developing Creative Confidence
-=========================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Cultivating a creative mindset and developing creative confidence are key to unlocking our full creative potential. By adopting specific techniques and strategies, we can overcome self-doubt, tap into our imagination, and generate innovative ideas. This chapter explores techniques for cultivating a creative mindset and developing creative confidence.
 

@@ -1,5 +1,4 @@
-Chapter: Strategies for Overcoming Creative Blocks and Embracing Failure
-========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Creativity is a dynamic process that can sometimes be hindered by creative blocks and the fear of failure. In this chapter, we will explore effective strategies for overcoming these obstacles and unleashing our creative potential. By learning how to navigate creative blocks and embrace failure, we can cultivate a more resilient and productive creative mindset.
 

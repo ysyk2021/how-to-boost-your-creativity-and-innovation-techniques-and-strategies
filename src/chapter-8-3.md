@@ -1,5 +1,4 @@
-Chapter: The Benefits of Overcoming Obstacles in Encouraging Continued Creative and Innovative Thinking
-=======================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Overcoming obstacles is an integral part of the creative and innovative process. This chapter explores the numerous benefits that arise from overcoming obstacles, fostering resilience, and encouraging continued creative and innovative thinking.
 

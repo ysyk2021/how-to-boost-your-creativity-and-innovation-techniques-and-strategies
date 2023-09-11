@@ -1,5 +1,4 @@
-Chapter: Strategies for Building Effective Teams and Encouraging Open Communication
-===================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for building effective teams and fostering open communication to enhance creativity and innovation. Creating a collaborative and communicative environment is essential for generating and developing innovative ideas.
 

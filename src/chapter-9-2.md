@@ -1,5 +1,4 @@
-Chapter: Strategies for Managing Constraints and Prioritizing Ideas
-===================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Managing constraints and prioritizing ideas are key strategies for enhancing creativity and innovation. This chapter explores effective techniques for identifying, managing, and prioritizing constraints to optimize idea generation and ensure successful implementation.
 

@@ -1,5 +1,4 @@
-Chapter: Techniques for Collaborating Across Disciplines and Encouraging Collective Idea Generation
-===================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Collaboration across disciplines is key to fostering innovation and enhancing idea generation. When individuals from different fields come together, they bring unique perspectives and expertise that can lead to the development of groundbreaking ideas. This chapter explores various techniques for effectively collaborating across disciplines and encouraging collective idea generation.
 

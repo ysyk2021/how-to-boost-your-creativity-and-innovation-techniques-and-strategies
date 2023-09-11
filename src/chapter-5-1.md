@@ -1,5 +1,4 @@
-Chapter: Techniques for Thinking Outside the Box and Encouraging Non-Traditional Idea Generation
-================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Thinking outside the box is a vital skill for enhancing creativity and generating innovative ideas. This chapter explores various techniques that can help individuals break free from conventional thinking patterns and foster non-traditional idea generation.
 

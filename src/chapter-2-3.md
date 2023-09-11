@@ -1,5 +1,4 @@
-Chapter: The Benefits of Cultivating a Creative Mindset in Encouraging Idea Generation and Innovation
-=====================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 A creative mindset is a powerful tool for enhancing idea generation and fostering innovation. When we cultivate a creative mindset, we open ourselves up to new possibilities, think outside the box, and tap into our innate imaginative abilities. This chapter explores the benefits of cultivating a creative mindset in encouraging idea generation and innovation.
 

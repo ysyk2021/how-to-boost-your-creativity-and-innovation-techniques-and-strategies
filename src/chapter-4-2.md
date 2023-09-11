@@ -1,5 +1,4 @@
-Chapter: Strategies for Developing Creative Habits and Tapping into Unconscious Thinking
-========================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Developing creative habits and tapping into unconscious thinking are powerful strategies for enhancing idea generation and fostering innovation. By incorporating specific techniques into our daily routines and leveraging the power of our subconscious mind, we can unlock new levels of creativity and uncover innovative solutions. This chapter explores strategies for developing creative habits and tapping into unconscious thinking.
 

@@ -1,5 +1,4 @@
-Chapter: Techniques for Finding Inspiration and Encouraging Novel Idea Generation
-=================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore techniques and strategies for finding inspiration and encouraging the generation of novel ideas. These techniques are designed to stimulate creativity and help individuals and teams break through mental barriers to discover innovative solutions.
 
